@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Visualize, plan, schedule or auto post your Instagram, Facebook, LinkedIn, TikTok & Pinterest social posts right from your smartphone or desktop.
+Plann is your all-in-one auto-scheduler, social strategist, designer and content calendar.
 
 https://plannthat.com
 
